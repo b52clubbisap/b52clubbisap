@@ -1,16 +1,15 @@
-### Hi there 👋
+### B52 Club bị sập
 
-<!--
-**b52clubbisap/b52clubbisap** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+B52 Club bị sập là tin đồn hay sự thật?
 
-Here are some ideas to get you started:
+Thực hư về thông tin cổng game bài B52 bị sập là ra sao? Để đào sâu hơn vấn đề một cách kỹ càng nhất, chúng tôi đã lấy ý kiến từ rất nhiều thành viên trung thành đã gắn bó với cổng game bài B52 từ những ngày đầu thành lập và được biết thông tin rằng trong suốt khoảng thời gian hình thành và phát triển, cổng game bài B52 chưa một lần bị sập. Vậy do đâu mà lại có tin đồn thất thiệt như vậy?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://iwinios.link/game/b52-club-bi-sap/
+
+https://www.tumblr.com/b52clubbisap
+
+https://gab.com/b52clubbisap
+
+https://www.deviantart.com/b52clubbisap
+
+https://ok.ru/profile/598920437768/statuses/155486810277128
